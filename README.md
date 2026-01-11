@@ -1,0 +1,1 @@
+# safe-ping-privacy-policy
